@@ -1,1 +1,1 @@
-# -Icecream454-mbti-privacy-policy
+# mbti-privacy-policy
